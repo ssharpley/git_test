@@ -1,1 +1,1 @@
-Rockin, rollin, and GITtin started. But with new changes
+Rockin, rollin, and GITtin started. Now with new changes
